@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m Asmaa,<br><br><br>👀 I’m interested in everything cloud.<br>🌱 I’m currently learning everything about cloud and AI.<br>
+👋 Hi, I’m Asmaa,<br>I am a technical Project Manager🌟<br>👀 I’m interested in everything cloud.<br>🌱 I’m currently learning everything about cloud and AI.<br>
 
 
 ## 🌐 Socials:
